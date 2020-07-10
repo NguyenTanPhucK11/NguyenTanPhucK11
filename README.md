@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-My name Phúc 
+My name is Phúc 
